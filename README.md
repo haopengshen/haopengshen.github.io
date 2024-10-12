@@ -5,7 +5,7 @@ Haopeng Shen (沈浩鹏),
 an Assistant Professor at Economics Department, Nanjing University. 
 
 My research focuses on macroeconomics, development economics, and Chinese economy. 
-I teach intermediate macroeconomics (for the selected class) and advanced macroeconomics (Ph.D. level) at Nanjing University.
+I teach intermediate macroeconomics (Top-notch Economics Class) and advanced macroeconomics (Ph.D. level) at Nanjing University.
 
 Email: hpshen@nju.edu.cn
 
