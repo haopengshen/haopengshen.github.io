@@ -1,6 +1,6 @@
 
 
-# Bio
+
 Haopeng Shen (沈浩鹏),
 an Assistant Professor at Economics Department, Nanjing University. 
 
